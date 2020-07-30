@@ -1,1 +1,1 @@
-# Looking at the schools from NYS to see how they can strive 
+# Look at NYS univ./colleges and the effects of Covid-19
